@@ -10,4 +10,4 @@ Hyeok
 Boop
 ![image](https://i.imgur.com/XHktL9q.jpg)
 Badge
-![image](https://imgur.com/Zz68kmF)
+![image](https://i.imgur.com/Zz68kmF.png)
