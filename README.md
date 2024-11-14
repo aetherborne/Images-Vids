@@ -31,5 +31,5 @@ My Days
 
 Gif Cat 
 
-![ssstik io__feowa_l1__1731623678130](https://github.com/user-attachments/assets/39384358-55c7-436a-ae63-908197b5484c)
+![Imagenes Azules](https://github.com/user-attachments/assets/1de669e2-c0dd-471a-b438-85430abd1a9b)
 
