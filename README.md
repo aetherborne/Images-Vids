@@ -33,3 +33,7 @@ Gif Cat
 
 ![Imagenes Azules](https://github.com/user-attachments/assets/1de669e2-c0dd-471a-b438-85430abd1a9b)
 
+Gif Tabby
+
+![image](https://giphy.com/gifs/kitten-pose-playful-uok4MNoD0wVUWU54VZ)
+
